@@ -79,3 +79,11 @@ Luis Betancourt
 ## 📸 Capturas de Pantalla
 
 [Ver galería de imágenes](https://postimg.cc/gallery/vDdM2CC) 
+
+![WhatsApp Image 2025-03-28 at 11 05 08 PM](https://github.com/user-attachments/assets/1debd606-4935-45eb-bfc8-9c4f73092c4f)
+
+![WhatsApp Image 2025-03-28 at 11 05 08 PM (1)](https://github.com/user-attachments/assets/a44e1a42-dce4-4c43-b4ab-c083aaa1d2c9)
+![WhatsApp Image 2025-03-28 at 11 05 09 PM](https://github.com/user-attachments/assets/7770e12a-9759-4b6c-8321-505cbbf5080d)
+![WhatsApp Image 2025-03-28 at 11 05 09 PM (1)](https://github.com/user-attachments/assets/b46f1b5d-5ffd-428a-ac40-3d77399b3394)
+![WhatsApp Image 2025-03-28 at 11 05 09 PM (2)](https://github.com/user-attachments/assets/80cd07c7-0455-41d3-ac10-27ca495d6ef4)
+
